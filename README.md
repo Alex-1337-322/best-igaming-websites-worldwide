@@ -1,4 +1,4 @@
-# Covering The Best Online Gambling Sites
+# Covering The Best Online Gambling Sites Worldwide
 
 These are our picks for the best online gambling sites all across the world, featuring platforms that offer both online casino games and sports gambling.
 
